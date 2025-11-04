@@ -1,1 +1,1 @@
-i love eating hotdogs and playing trombone
+how do you delete a readme
